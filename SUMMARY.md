@@ -1,4 +1,4 @@
 # SUMMARY
 
-* [Chapter1](part1.md)
-* [Chapter2](part2.md)
+* [Part1](part1.md)
+* [Part2](part2.md)
