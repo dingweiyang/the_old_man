@@ -1,0 +1,6 @@
+## part8
+
+"Do you want coffee?" the boy asked. "We'll put the gear in the boat and then get some." They had coffee from condensed milk cans at an early morning place that served fishermen. "How did you sleep old man?" the boy asked. He was waking up now although it was still hard for him to leave his sleep. "Very well, Manolin," the old man said. "I feel confident today." "So do I," the boy said. "Now I must get your sardines and mine and your fish baits. He brings our gear himself. He never wants anyone to carry anything."
+> 余：“你要喝咖啡吗？”男孩问道。“我们先把这些东西放在船上，再去喝。”他们到专做渔人生意的早食店里，用炼乳罐头盛咖啡喝。“你睡得好吗，老头子？”男孩问道。虽然打断睡眠，仍感不适，他现在总算渐渐地醒过来了。“好极了，曼诺林，”老人说，“我今天觉得很有把握。”“我也是的，”男孩说，“现在我得去拿你和我的沙丁鱼，还有你的新饵。他总是自己拿我们的东西。他从来不要别人拿。”
+
+> 张：「你要喝咖啡么？」孩子问。「我们把工具放在船上，再去喝咖啡。」他们到一个大清早做渔夫们生意的地方，用听头炼乳的洋铁罐喝咖啡。「老头子你睡得怎么样？」孩子问。他现在渐渐醒过来了，但是他仍旧很难摆脱睡意。「我睡得很好，玛诺林，」老人说。「今天我很有信心。」「我也有，」孩子说。「现在我得去拿你同我的沙汀鱼，还有你的新鲜的饵。我们的工具他自己带来。他从来不要别人帮着拿什么。」
