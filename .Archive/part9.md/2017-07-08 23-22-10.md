@@ -1,0 +1,6 @@
+## part9
+
+In the dark the old man could feel the morning coming and as he rowed he heard the trembling sound as flying fish left the water and the hissing that their stiff set wings made as they soared away in the darkness. He was very fond of flying fish as they were his principal friends on the ocean. He was sorry for the birds, especially the small delicate dark terns that were always flying and looking and almost never finding, and he thought, the birds have a harder life than we do except for the robber birds and the heavy strong ones.
+> 余：昏暗中，老人觉得黎明渐近；他边划边听到飞鱼出水时颤动的声音，和它们坚直的翅膀在暗空飞过时发出的长嘶。他非常欢喜飞鱼，因为它们是他在海上的主要友伴。他总为那些鸟儿感到恻然，尤其是那些娇小、灰黑的海燕，它们老是在飞旋，寻找，而多半又找不着什么东西。他想：“鸟儿的日子比我们还要过得苦，自然那些掠食的和结壮的鸟儿是例外。
+
+> 张：在黑暗中，老人可以觉得早晨渐渐来到了，他一面划着船，听见飞鱼离开水面时发出颤抖的声音，它们在黑暗中飞去，它们那僵硬的翅膀嘶嘶响着。他非常喜欢飞鱼，因为它们是在海洋上主要的友伴。他为鸟雀忧愁，尤其是那种纤小黯黑的燕鸥，老是在那里飞着，找着，差不多永远找不到。他想：「鸟的生活比我们苦，除了那些专靠打劫为生的鸟，和那些有力气的大鸟。
