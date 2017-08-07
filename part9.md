@@ -20,3 +20,7 @@ He was rowing steadily and it was no effort for him since he kept well within hi
 
 > 张：他稳定地划着船，并不费力，因为他并没有超出他通常的速度，而且，除了潮流上偶然起些漩涡之外，海面上是风平浪静的。他让潮流替他做三分之一的工作，天刚刚亮的时候，他发现他在短短的时间内已经远出海口外了，他并没有敢抱这样的奢望。我在这些深井工作，已经有一个星期了，什么也没有捉到，他想。今天我到一群群铿鱼和大青花鱼聚集的地方去，也许它们里面有一条大鱼。天还没有完全亮，他已经把饵放下水去，船顺着潮水漂流着。
 
+One bait was down forty fathoms. The second was at seventy-five and the third and fourth were down in the blue water at one hundred and one hundred and twenty-five fathoms. Each bait hung head down with the shank of the hook inside the bait fish, tied and sewed solid and all the projecting part of the hook, the curve and the point, was covered with fresh sardines. Each sardine was hooked through both eyes so that they made a half-gar-land on the projecting steel. There was no part of the hook that a great fish could fell which was not sweet smelling and good tasting. 
+> 余：第一个饵入水四十英寻。第二个入水七十五英寻，第三第四两个却深沉蓝色的海水之中，各在一百及一百廿五英寻处。每个引饵都倒垂水中，钩柄藏在饵鱼腹内，系好缝牢，而鱼钩一切突出的部分，亦即钩弯和钩尖，都套上了新鲜的沙丁鱼。每条沙丁鱼都给钓钩贯穿两眼，在钢弯上形成了半圆形的花圈。钓钩上，大鱼所能接触到的部分莫不香甜可口。
+
+> 张：一个饵放到四十噚下。第二个是七十五噚，第三第四个放在那蓝色的水里一百噚下，和一百二十五噚下。每一个饵都是头朝下，鈎子上直的一部分戳在作饵的鱼里，缚了起来，缝得牢牢的；鈎子突出的一部分──弯曲的部分，和尖子──完全盖满了新鲜的沙汀鱼。每一条沙汀鱼从两只眼睛里穿进去，它们穿在那铁钩上像半只花圈一样，在一条大鱼看来，这鈎子没有一部分不是香甜美味的。
