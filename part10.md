@@ -30,3 +30,15 @@ But, he thought, I keep them with precision. Only I have no luck any more. But w
 > 余：可是，他想，我的钓索深度最准。只是我已经不再交运罢了。可是谁又能预料呢？也许就是今天。天天都是新日子。有运气当然好。可是我宁可做得准确。这样，运气一来，我就等着了。
 
 > 张：但是我总把它们弄得非常准确，他想。不过我现在运气不行了。但是谁知道呢？也许今天。每天都是新的一天。运气好当然更好了。但是我宁可准确。那么运气来的时候你是有准备的。
+
+The sun was two hours higher now and it did not hurt his eyes so much to look into the east. There were only three boats in sight now and they showed very low and far inshore. All my life the early sun has hurt my eyes, he thought. Yet they are still good. In the evening I can look straight into it without getting the blackness. It has more force in the evening too. But in the morning it is painful.
+
+> 余：这时，太阳已经升上来两小时，向东方眺望，也不那么刺眼了。此刻但见三点小船，紧贴水面，而且远在靠岸的那边。他想，早上的阳光刺眼了一辈子。可是我的眼力依然健好。到了傍晚，我正视落日，眼睛也不会发黑。落日的威力较大。可是旭日真伤眼睛。
+
+> 张：现在太阳上去已经有两个钟头了，向东方望去，眼睛不那么痛了。现在看得见的船只有三条，看上去全非常矮，离岸很近。我这一辈子，看了早晨的太阳总是眼睛痛，他想。然而眼睛还是很好。太阳落山的时候我可以毕直向太阳里望进去，不会眼前发黑，其实傍晚的时候光线还强些。但是早晨总是痛。
+
+Just then he saw a man-of-war bird with his long black wings circling in the sky ahead of him. He made a quick drop, slanting down on his back-swept wings, and then circled again. "He's got something," the old man said aloud. "He's not just looking." He rowed slowly and steadily toward where the bird was circling. He did not hurry and he kept his lines straight up and down. But he crowded the current a little so that he was still fishing correctly though faster than he would have fished if he was not trying to use the bird.
+
+> 余：正在这时，他看见一只军舰鸟，展开黑色的长翼，在前面的天空飞旋。它一回双翼，迅速地向下斜冲，接着又开始飞旋。“它一定抓到什么东西了，”老人高叫，“它不只是看看的。”他向鸟儿飞旋的地方，继续缓缓地划行。他从容不迫，使钓索保持垂直。他只划得比湾流快些；如果他不想利用鸟儿寻鱼，则他平时捕鱼会划得慢些，可是现在他的捕法仍不失精确。
+
+> 张：正在这时候，他看见一只军舰鸟，长长的黑翅膀，在天空中盘旋着，就在他前面。他两翅膀向后掠着，倾斜着翅膀很快地落下去，然后又在空中盘旋。「他得到了一点什么了，」老人自言自语。「他不光是在那里寻找。」他缓缓地稳定地划着，向那鸟盘旋着的那块地方划去。他不慌不忙地，仍旧使他的钓丝上下毕直。但是他划得比潮流的速度稍微快一点，好把钓丝带紧些，他这打鱼的方式也是对的，不过如果不是想利用那只鸟，他用不着这样快。
